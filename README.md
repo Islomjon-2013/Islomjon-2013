@@ -1,1 +1,2 @@
 ### Hi I am Khulkar Siddikova.<img src="https://media2.giphy.com/media/gM5qFksULw54NMWyry/giphy.gif?cid=ecf05e479mju5c924jz2ii53izpu9c8wxnxd44rg2eonimvu&rid=giphy.gif&ct=s>
+<iframe src="https://giphy.com/embed/gM5qFksULw54NMWyry" width="480" height="480" frameBorder="0" class="giphy-embed" allowFullScreen></iframe><p><a href="https://giphy.com/gifs/hello-wave-hand-gM5qFksULw54NMWyry">via GIPHY</a></p>
